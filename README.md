@@ -6,4 +6,5 @@
 <p align="center">
 Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, but I am nice so don't be afraid to approach me. I'm an extravert, I can't help it. anyways, I spend my time cooking, working out, and listening to tunes that would probably scare you.
 <p align="center">  
-  Spotify | Tumblr | Instagram | Pinterest
+<a href="https://open.spotify.com/playlist/0PMkBBr2SG2oj4OPRk3crW?si=JMWsDOnaQZSPmX_Wz-xOVQ&utm_source=copy-link&pi=m9wHoEBRTlCCR">Spotify</a> ║ <a href="https://www.tumblr.com/zeisolfwarwick">Tumblr</a> ║ <a href="https://www.instagram.com/zeisolfwarwick/">Instagram</a>
+
