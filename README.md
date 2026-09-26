@@ -8,3 +8,4 @@ Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, 
 <p align="center">  
 <a href="https://open.spotify.com/playlist/0PMkBBr2SG2oj4OPRk3crW?si=JMWsDOnaQZSPmX_Wz-xOVQ&utm_source=copy-link&pi=m9wHoEBRTlCCR">Spotify</a> ║ <a href="https://www.tumblr.com/zeisolfwarwick">Tumblr</a> ║ <a href="https://www.instagram.com/zeisolfwarwick/">Instagram</a>
 
+[![gothic-ornamental-sword-with-intricate-designs-and-bat-wing-motifs-dark-medieval-style-suitable-for.png](https://i.postimg.cc/13NKNNZB/gothic-ornamental-sword-with-intricate-designs-and-bat-wing-motifs-dark-medieval-style-suitable-for.png)](https://postimg.cc/gxmhCjjL)
