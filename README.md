@@ -3,3 +3,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=xv2tpbgcp839kbvk3oe8f3zov&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=999999">
   </a>
 </p>
+<p align="center">
+Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, but I am nice so don't be afraid to approach me. I'm an extravert, I can't help it. anyways, I spend my time cooking, working out, and listening to tunes that would probably scare you.
+<p align="center">  
+  Spotify | Tumblr | Instagram | Pinterest
