@@ -18,5 +18,22 @@ Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, 
 <p align="center">  
 <a href="https://open.spotify.com/playlist/0PMkBBr2SG2oj4OPRk3crW?si=JMWsDOnaQZSPmX_Wz-xOVQ&utm_source=copy-link&pi=m9wHoEBRTlCCR">Spotify</a> ║ <a href="https://www.tumblr.com/zeisolfwarwick">Tumblr</a> ║ <a href="https://www.reddit.com/u/ZeisolfWarwick/s/5S9BWT0sPV">Reddit</a>
   
+<p align="center">
+  <img src="https://i.postimg.cc/QdjY6Wyg/flamingtext-com-704609788.png">
+</p>
+
+### Likes:
+> Castlevania,
+> Legend of Zelda,
+> Metroid,
+> Donkey Kong,
+> Sonic the Hedgehog,
+> Need for Speed,
+> Medieval and fantasy weapons,
+> Basketball,
+> Engineering,
+> Woodworking,
+> Welding,
+> Vintage cars and motorcycles
 
   [![ezgif-446fd30af35695e8.gif](https://i.postimg.cc/ht6fnb1d/ezgif-446fd30af35695e8.gif)](https://postimg.cc/Mn0WbB46)
