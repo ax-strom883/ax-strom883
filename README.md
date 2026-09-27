@@ -34,6 +34,16 @@ Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, 
 > Engineering,
 > Woodworking,
 > Welding,
-> Vintage cars and motorcycles
+> Vintage cars and motorcycles.
+
+<p align="center">
+  <img src="https://i.postimg.cc/FzM5dsrB/Untitled375-20260926211244.png">
+</p>
+
+### Hobbies:
+> Cooking, working out, art/craft, music, collecting model cars, video gaming.
+
+### Music:
+> Trelldom, Tsjuder, Urgehal, Kampfar, Arckanum, Darkthrone, Bathory, Dark Funeral, Satyricon, Nattefrost, Watain, Immortal, Leviathan, Forgotten woods.
 
   [![ezgif-446fd30af35695e8.gif](https://i.postimg.cc/ht6fnb1d/ezgif-446fd30af35695e8.gif)](https://postimg.cc/Mn0WbB46)
