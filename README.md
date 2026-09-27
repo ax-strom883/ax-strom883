@@ -1,4 +1,8 @@
 <p align="center">
+  <img src="https://i.postimg.cc/qRW7kr3P/Untitled376-20260926200344.png">
+</p>
+
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=xv2tpbgcp839kbvk3oe8f3zov&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=xv2tpbgcp839kbvk3oe8f3zov&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=999999">
   </a>
