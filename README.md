@@ -45,5 +45,7 @@ Names Zeisolf. Metalhead bassist in his 20s. I don't do the whole people thing, 
 
 ### Music:
 > Trelldom, Tsjuder, Urgehal, Kampfar, Arckanum, Darkthrone, Bathory, Dark Funeral, Satyricon, Nattefrost, Watain, Immortal, Leviathan, Forgotten woods.
-
-  [![ezgif-446fd30af35695e8.gif](https://i.postimg.cc/ht6fnb1d/ezgif-446fd30af35695e8.gif)](https://postimg.cc/Mn0WbB46)
+> 
+<p align="center">
+  <img src="https://i.postimg.cc/ht6fnb1d/ezgif-446fd30af35695e8.gif">
+</p>
